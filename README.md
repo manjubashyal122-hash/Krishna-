@@ -33,6 +33,6 @@ When I'm not studying or coding, I enjoy gaming, singing, video editing, watchin
 
 ### 💡 My Philosophy
 
-> Continue until it doesn't feel easy.
+> Continue until it feel easy.
 
 Thanks for visiting my profile! 🚀
